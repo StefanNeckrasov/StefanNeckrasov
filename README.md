@@ -5,5 +5,5 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:
 - 💻 Discord: nestefanyt
-- 📱 Telegram: https://t.me/stefaneckrasov
+- 📱 Telegram: https://t.me/ugglystefan
 :)
