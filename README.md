@@ -6,4 +6,5 @@
 - 📫 How to reach me:
 - 💻 Discord: nestefanyt
 - 📱 Telegram: https://t.me/ugglystefan
+- ‎🍱 Bento: https://bento.me/stefanik-0ff
 :)
